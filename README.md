@@ -1,0 +1,2 @@
+# 1121031038_farahambarwati_B
+TUGAS SLLC STRUKTUR DATA
